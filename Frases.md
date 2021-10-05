@@ -58,3 +58,5 @@ mesmo é fundamental." - Fernanda Sozinho
 "Fracassar é parte crucial do sucesso. Toda vez que você fracassa e se recupera, exercita perseverança, que é a chave da vida. Sua força está na habilidade de se recompor." – Michelle Obama
 
 "Nós não crescemos quando as coisas são fáceis;crescemos quando enfrentamos desafios" - Raymonda Yeh
+
+"Não deixe ninguém dizer que você não pode fazer algo. Você é seu único obstáculo" - Laurie Grindle
